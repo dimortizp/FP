@@ -1,0 +1,1 @@
+https://www.genbeta.com/desarrollo/el-resurgir-de-la-programacion-funcional
